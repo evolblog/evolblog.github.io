@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+En este Blog encontrarás novedades y opiniones que surgen de un campo de estudio fascinante, en continuo crecimiento y avance, producto de procesos ecológicos y evolutivos interactuantes que dan forma a la biodiversidad.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Soy biólogo, investigador de CONICET, padre de tres y estoy interesado en los procesos de moldean la evolución contemporanea, es decir aquella que ocurre aquí y ahora.
